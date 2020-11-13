@@ -1,4 +1,8 @@
-# Your goal and responsibility
+# Your Goals and Responsibilities
 
-What should you aim for as a DJ? Who determines if you are good or bad?
+What should you aim for as a DJ?  Who determines if you are good or bad? 
+
+
+
+
 
