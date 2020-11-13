@@ -1,4 +1,4 @@
-# Summary
+# Table of contents
 
 * [Introduction](README.md)
 * [So you want to be a DJ](so-you-want-to-be-a-dj.md)

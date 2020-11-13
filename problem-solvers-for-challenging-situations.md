@@ -4,7 +4,3 @@ Outdoor milonga?
 
 No power supply?
 
-
-
-
-
